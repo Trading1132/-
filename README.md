@@ -1,7 +1,7 @@
 # 看剧吧免费在线观看最新最全的高清国产剧资源，支持投屏和手机在线播放
 
-![看剧吧 Logo](![image](https://github.com/user-attachments/assets/4d61c756-1da2-4266-8949-0341b40db8cd)
-)
+![image](https://github.com/user-attachments/assets/a1672bc7-0b41-4734-9bbc-0299c5f7952e)
+
 
 ## 🎬 关于 看剧吧
 
